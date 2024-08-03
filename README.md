@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @7978736510
+- 👋 Hi, I’m @Shree
 - 👀 I’m interested in fun
 - 🌱 I’m currently learning lifestyle
 - 💞️ I’m looking to collaborate on you
